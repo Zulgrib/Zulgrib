@@ -1,4 +1,5 @@
-👋 Hi, I’m @Zulgrib
+👋 Hi, I’m Zulgrib
+
 I'm available to help you secure your business.
 
 <!---
